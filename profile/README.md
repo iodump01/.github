@@ -12,3 +12,4 @@ IODump is a student-driven community that aims to equip the future tech leaders 
 💼 LinkedIn: https://www.linkedin.com/company/iodump01/ <br>
 📷 Instagram: https://www.instagram.com/iodump01/ <br>
 🐦 Twitter: https://twitter.com/iodump01 <br>
+📱  Telegram: https://t.me/iodump01
